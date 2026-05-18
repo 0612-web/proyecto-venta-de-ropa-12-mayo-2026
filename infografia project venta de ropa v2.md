@@ -12,6 +12,7 @@
 
 ## fase 2 y 3
 <img width="1536" height="1024" alt="image" src="https://github.com/user-attachments/assets/446a89cb-15b7-4949-9058-80dd33caa5fe" />
+<img width="1024" height="1536" alt="image" src="https://github.com/user-attachments/assets/b6852df8-1f6c-4359-8fe9-114c8efa0578" />
 
 
 
